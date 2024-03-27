@@ -5,8 +5,8 @@
 - **Birthday:** 22.11.1996
 - **Email:** gurtovenkoanna4@gmail.com
 - **Phone:** +380665178265
-- **Telegram:** [Your Telegram Handle](https://t.me/your_telegram_handle)
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/your_linkedin_profile)
+- **Telegram:** (https://t.me/Anna_Gurtovenko_22)
+- **LinkedIn:** (https://www.linkedin.com/in/anna-gurtovenko-v/)
 
 ### Work Experience:
 
